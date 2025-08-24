@@ -1,4 +1,4 @@
-## [🎠 ARKADA Casino — Официальный сайт 💎](https://arkadacasino.bet/)  
+## [🎠 ARKADA Casino — Официальный сайт 💎](https://arkadacasinorus.bet/)  
 
 [![Аркада Казино](https://htxodbozadzvxzebtesu.supabase.co/storage/v1/object/public/Videos/Arkada%20Casino%20Promo.webp)](https://arkadacasinorus.bet/)  
 
